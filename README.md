@@ -1,0 +1,1 @@
+# Prompts-para-gerar-Insights-de-Relat-rios-de-Vendas
